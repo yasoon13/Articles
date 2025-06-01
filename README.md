@@ -1,3 +1,4 @@
+[The sorry state of mergers and acquisitions](https://www.dawn.com/news/1913380) <br>
 [The Science of a Good First Impression](https://toastmasters.org/magazine/magazine-issues/2025/may/the-science-of-a-good-first-impression) <br>
 [Maximize Your Speech’s Beginnings and Endings](https://www.toastmasters.org/magazine/magazine-issues/2025/april/maximize-your-speechs-beginnings-and-endings)
 
